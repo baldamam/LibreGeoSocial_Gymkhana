@@ -1,1 +1,0 @@
-# LibreGeoSocial_Gymkhanas
